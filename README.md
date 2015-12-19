@@ -1,4 +1,0 @@
-# innovrim
-Organisation commnautaire
-
-INNOVATION
